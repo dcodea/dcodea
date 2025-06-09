@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **dcodeakshay@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: https://www.upwork.com/freelancers/akshaydcodea</h3>
 <p align="left">
 </p>
 
